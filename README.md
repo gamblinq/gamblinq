@@ -1,11 +1,10 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=antonkomarev&color=080a3b&label=ᡣ𐭩&abbreviated=true)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=antonkomarev&color=F2D963&label=ᡣ𐭩&abbreviated=true)
 
 
 
-[![1000001620](https://github.com/user-attachments/assets/7d8adc7c-0b32-4f84-866a-e2df649586ff)
-](https://rentry.co/uictim)
+[![1000001678](https://github.com/user-attachments/assets/a70b08e0-9ae1-4c09-83c4-a7ce62912041)](https://rentry.co/uictim)
 
-𓂅⠀⠀⠀[![1000001627](https://github.com/user-attachments/assets/a232e450-705d-4e09-8ef5-1c5460abfbc5)](https://rentry.co/vicchosen)
+𓂅⠀⠀⠀[![1000001680](https://github.com/user-attachments/assets/56ad58ff-d074-46f1-bce6-a88cd237b283)](https://rentry.co/vicchosen)
 
 
 
